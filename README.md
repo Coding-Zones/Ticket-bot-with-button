@@ -21,7 +21,7 @@
 
 
 ## Any bug or suggestion !
-- Contact With Me Discord: Tejas Lamba#1924
+- Contact With Me Discord: </ Itz_Danny >#3514
 - or Discord Server [</Coding Zone>](https://dsc.gg/codingzone)
 
 ## Rainbow Studio
