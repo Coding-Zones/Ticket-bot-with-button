@@ -24,7 +24,7 @@
 - Contact With Me Discord: </ Itz_Danny >#3514
 - or Discord Server [</Coding Zone>](https://dsc.gg/codingzone)
 
-## Rainbow Studio
+## </Coding Zone>
 - [Discord Server](https://dsc.gg/codingzone)
 - [Github](https://github.com/Coding-Zones/)
 
